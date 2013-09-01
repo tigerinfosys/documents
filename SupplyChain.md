@@ -1,9 +1,6 @@
 documents
 =========
 
-useful documents for YunnuY Software Studio
-
-
 一. 市场调研
 
     a. 东泰水果大卖场丹桂路店
