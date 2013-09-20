@@ -72,3 +72,9 @@ documents
 三. When to make it true?
 
     Need discuss with the partner. That's ming.
+    
+    工具： 货车
+    
+    使用方式： 租赁（突然想到灿妹她爸是个不错的人选，值得信赖，说不定价格上还可以优惠）
+    
+    车程：西安距上海1500余公里，从西安到上海开车大约需要15小时
